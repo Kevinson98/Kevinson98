@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kevinson karakacha
+- 👋 Hi, I’m @Kevinson karakaja
 - 👀 I’m interested in data collection analysis and giving meaningful insights from the analysed data.
 - 🌱 I’m currently learning at Maseno university pursuing an undegraduate degree in Bsc Applied statistics with IT.
 - I have been attached at Maseno University(MU-LISA) to gain relevant skills in my line of proffession.
